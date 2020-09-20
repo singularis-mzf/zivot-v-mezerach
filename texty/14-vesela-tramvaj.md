@@ -275,7 +275,7 @@ sochy přece nemusí být hezké,“ začal sochař a pokračoval: „Třeba zr
 Kašpárek je dobrý v tom, jak posouvá hranice vnímání a vyvolává diskuzi.
 Sochy přece nemusí být jen hezké.“
 
-Napil se vína a pokračoval dál: „Víte, jaké sochy byly v parku pod Klášterem
+Napil se vína a pokračoval dál: „Víte, jaké sochy byly v parku pod klášterem
 původně?“ — Markéta se zamyslela, ale nakonec jí nezbylo než zavrtět hlavou.
 — „Já si to taky dlouho neuvědomoval. Žádné sochy jsem si z toho parku
 neuvědomoval, tak jsem se tam šel podívat. A tam mi to došlo —
